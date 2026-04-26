@@ -2,6 +2,6 @@
 
 •	Estudiante: Bengoechea, María Florencia
 
-•	Comisión: K
+•	Comisión: K2052
 
 •	Año: 2026
